@@ -1,12 +1,12 @@
 
-   Логин - rodxMEN2
+   Логин - malen_yous
    
-   Пароль - GKVP9TL4!36R
+   Пароль - 3PGFVVVW6W36
 
    Почта и пароль от FIRSTMAIL:
    
-   Почта - msgoqukr@firstmailler.net
+   Почта - bnltkigi@firstmailler.net
    
-   Пароль - ypedkdtqY8750	
+   Пароль - kgemmhgzY8388
    
   ссылка на вход в почту - https://firstmail.ltd/webmail/inbox
